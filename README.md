@@ -1,4 +1,4 @@
-# 🎓 Vinay Kumar Joshi
+# 🎓 Vinay Joshi
 
 📞 +91-93536730907  
 📧 [joshivinay085@gmail.com](mailto:joshivinay085@gmail.com)  
